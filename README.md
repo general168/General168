@@ -1,4 +1,4 @@
-### Hi there 👋
+### I’m currently learning Buddism
 
 <!--
 **general168/General168** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
